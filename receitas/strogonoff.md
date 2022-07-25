@@ -10,3 +10,4 @@
 1 xícara (chá) de polpa de tomate (200 g)
 1 vidro pequeno de cogumelos em conserva, em lâminas, escorrido (100 g)
 1 lata de creme de leite (300 g)
+* Ótima receita *
